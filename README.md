@@ -1,0 +1,2 @@
+# 7J
+primer parcial 
